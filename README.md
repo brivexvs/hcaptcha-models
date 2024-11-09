@@ -4,3 +4,5 @@ hCaptcha is rapidly evolving to new and harder challenges. This puts services at
 
 # If you wish to purchase these models for a cheap price, visit https://t.me/hcaptchamodels
 # or contact me https://t.me/harrysfo
+
+## I ALSO DO 1on1 TUTORING FOR MAKING YOUR OWN MODELS!
